@@ -1,4 +1,4 @@
-### Opa!! Eu sou Marcos Eduardo 👋
+### Opa!! Eu sou Marcos Eduardo. 👋
 
 
 
